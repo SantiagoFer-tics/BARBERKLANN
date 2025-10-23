@@ -1,2 +1,2 @@
 # BARBERKLANN
-ghgfhfg
+En Barbería El Turro, el flow se siente desde que cruzás la puerta. Acá no venís solo a cortarte el pelo: venís a renovar la facha, levantar la actitud y salir con toda la cancha. Nuestro equipo mezcla lo clásico con lo urbano, combinando la navaja fina con la onda del barrio. Desde un degradé bien turro hasta un recorte más formal, te dejamos listo para romperla en cualquier lugar. Ambiente piola, buena música y charlas entre mates y risas. En El Turro, cuidamos tu estilo como si fuera el nuestro, porque sabemos que cuando el corte está encendido… el autoestima también. Vení con tu flow, nosotros lo potenciamos.
